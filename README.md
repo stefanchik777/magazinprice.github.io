@@ -1,0 +1,1 @@
+# magazinprice.github.io
